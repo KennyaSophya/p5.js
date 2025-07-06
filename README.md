@@ -12,4 +12,4 @@ nerikennya@gmail.com
 
 @kenysx_
 
-![](https://tenor.com/pt-BR/view/cute-gif-894195170164649666)
+![(https://tenor.com/pt-BR/view/cute-gif-894195170164649666)
