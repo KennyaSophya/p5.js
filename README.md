@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 😸❤️✨
+### Boas vindas ao meu perfil 
 
 Meu nome é Kennya Sophya 
 
@@ -6,10 +6,10 @@ Meu nome é Kennya Sophya
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo 📧
+### Você pode entrar em contato comigo:
 
 nerikennya@gmail.com
 
 @kenysx_
 
-![](https://media1.tenor.com/m/x5ONhFTSqEYAAAAC/deadpool-deadpool-heart.gif)
+![](https://tenor.com/pt-BR/view/cute-gif-894195170164649666)
